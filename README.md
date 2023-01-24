@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @divyasethi5
-- 👀 I’m interested in Business analytics.
+- 👀 I’m a Business INtelligence Consultant.
 - 💞️ I’m looking to collaborate on data visualization
 - 📫 How to reach me -email me on divyasethi8382@gmail.com
 
